@@ -1,0 +1,1 @@
+jebem ti familiju komplet
